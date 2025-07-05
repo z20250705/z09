@@ -14,6 +14,6 @@
 此外，平台的界面简洁、易于操作，强大的搜索和推荐系统让你轻松找到感兴趣的影片。无论使用手机、平板还是电脑，观看体验都非常流畅。
 选择这些平台，你可以随时随地享受日本AV免费影片，免广告、免注册、高清流畅，尽享纯净观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z09 ）</span>
 
 
